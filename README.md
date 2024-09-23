@@ -33,7 +33,7 @@ Você pode conferir meu trabalho aqui:
 
 ## Vamos nos conectar!
 
-Estou sempre aberto a colaborações, feedbacks e novas oportunidades. Agradeço pela visita ao meu perfil!
+Estou sempre aberta a colaborações, feedbacks e novas oportunidades. Agradeço pela visita ao meu perfil!
 
 ---
 
